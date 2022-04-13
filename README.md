@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @insanefurry
+- 👀 I’m interested in lots of new stuff
+- 🌱 I’m currently learning on how to animate stuff you know 
+- 💞️ I’m looking to collaborate on one XD
+- 📫 How to reach me dm me in discord (sometimes i be offline)
